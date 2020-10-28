@@ -1,1 +1,1 @@
-# BDS-logo
+# Bitcoin association Slovenia logo pack
